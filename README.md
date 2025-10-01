@@ -1,3 +1,0 @@
-# Astronomy-lab
-
-Hello All!
